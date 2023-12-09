@@ -1,4 +1,4 @@
-# 1 Roshi Page
+# 1 DBZ Page
 
 ¡Bienvenido a 1 Roshi Page!
 
